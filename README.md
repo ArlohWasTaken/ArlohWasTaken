@@ -3,7 +3,6 @@
 - 📚 Computer science student at Babcock University<br/>
 - 🌱 I’m currently learning The basics<br/>
 - 💞️ I’m looking to collaborate on various projects<br/>
-- 📫 How to reach me [Instagram](https://www.instagram.com/kenseyorji/) [Email](Kenseyorji@gmail.com)<br/>
 
 
 ## 🌐 Socials:
